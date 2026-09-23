@@ -12,7 +12,7 @@ yeppppp
 </p>
 
 <p align="center">
-<img src="https://github.com/user-attachments/assets/57ca92d0-5d10-4e0d-8170-85edc33c4e01" width="400" />
+<img src="https://www.pasteboard.co/BVTEW0k1On80.png" width="400" />
 
 <p align="center">
 <img src="https://i.postimg.cc/XJRm98vq/ezgif-131e2fb41defdfdb.gif">
