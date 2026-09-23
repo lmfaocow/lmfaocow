@@ -12,5 +12,5 @@ yeppppp
 </p>
 
 <p align="center">
-<img src="https://i.postimg.cc/xCctxb7V/cvcku8ejaxrf1.gif">
+<img src="https://i.postimg.cc/XJRm98vq/ezgif-131e2fb41defdfdb.gif">
 </p>
