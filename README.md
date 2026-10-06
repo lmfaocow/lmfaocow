@@ -2,7 +2,7 @@
   <img src="https://i.postimg.cc/ZKTPMsw7/2EFAUXQLPT6QXAYEFAHZ2OCYO7KJRDE5.gif" />
 
 <p align="center">
-don't even worry about it
+all in due time princess celestia
 </p>
 
 <p align="center">
