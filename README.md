@@ -11,9 +11,7 @@ all in due time princess celestia
   </a>
 </p>
 
-<p align="center">
-<img src="https://i.postimg.cc/BvcR2DKc/2EKNTGWHAGW7SY3XYDZKQFODXZ7H3KSM.gif" width="400" />
 
 <p align="center">
-<img src="https://i.postimg.cc/XJRm98vq/ezgif-131e2fb41defdfdb.gif">
+<img src="https://i.postimg.cc/K83Tmg0q/LQAZZI4TJYSCNM6WKTB6MGMJD6URK7WL.gif">
 </p>
