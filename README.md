@@ -9,8 +9,9 @@
 </p>
 
 <p align="center">
-<img src="https://i.postimg.cc/mgZm2jvk/ezgif-5cba4cb0bfab0e10.gif">
+<img src="https://i.postimg.cc/J7qJ48MK/ezgif-54accd83ceb70ab1.gif">
 </p>
+
 <p align="center">
 @incelibate keeps following me around he thinks hes getting a treat who's gonna tell him
 </p>
