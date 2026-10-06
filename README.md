@@ -2,7 +2,7 @@
   <img src="https://i.postimg.cc/KvRk5Mhz/75GO75U2ZXOQ3ZUEPYL54EPAOYOAENQ2.gif" />
 
 <p align="center">
-all in due time princess celestia
+@incelibate keeps following me around he thinks hes getting a treat who's gonna tell him
 </p>
 
 <p align="center">
