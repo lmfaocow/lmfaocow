@@ -2,7 +2,7 @@
   <img src="https://i.postimg.cc/ZKTPMsw7/2EFAUXQLPT6QXAYEFAHZ2OCYO7KJRDE5.gif" />
 
 <p align="center">
-everypony is going to pay
+EVERYPONYWILLPAY
 </p>
 
 <p align="center">
